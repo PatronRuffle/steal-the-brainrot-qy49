@@ -1,4 +1,4 @@
-#  
+#  updated steal the brainrot base Scripts is the best steal the brainrot base Script, featuring one-hit kill and teleport. Safe and powerful for all
 
 
 
